@@ -1,7 +1,7 @@
-currently learning -💻- C++ and Javascript
+currently learning - C++ and Javascript
 
-hobbys -⚽- scripting, videogames
+hobbys - scripting, videogames
 
-how to reach me -📨- ask me for my Email
+how to reach me - ask me for my Email
 
-somoene special -🤍- Louisa
+somoene special - Louisa 🤍
